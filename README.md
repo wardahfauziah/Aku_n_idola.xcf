@@ -1,0 +1,1 @@
+# Aku_n_idola.xcf
